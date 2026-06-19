@@ -1,6 +1,5 @@
 https://tenor.com/view/vox-hazbin-hotel-vox-hazbin-hotel-vox-season-2-hazbin-season-2-gif-16931243501922176126?utm_source=share-button&utm_medium=Social&utm_content=pinterest
-
-
+<img width="736" height="788" alt="image" src="https://github.com/user-attachments/assets/63b2e82a-23bd-4739-a954-06eae8902a3c" />
 YOUR CERTIFIED PUNK MUSIC AND METALHEAD ENJOYER‼️💢☢️
 •‼️⛓️𓊈𝐂𝐄𝐑𝐓𝐈𝐅𝐈𝐄𝐃!!1 𝐏𝐇𝐈𝐒𝐍𝐎𝐌 𝐖𝐀𝐓𝐂𝐇𝐄𝐑𓊉⛓️
 Hi I'm icry, miles, edge, miller, cosmo, arachna I have so many names call me whatever you want Or Burak bcz I'm from turkiye multifandomer + autistic + has adhd + he/him/all/she/her/they/them/xe/xem/xyr + aroace (aromantic asexual)
