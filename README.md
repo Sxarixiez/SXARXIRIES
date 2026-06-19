@@ -4,6 +4,8 @@
 
 scar/riot/cozmo
 
+<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/f1c9a9ac-bebb-492b-b1a5-375ca6b6f0d6" />
+
 YOUR CERTIFIED PUNK MUSIC AND METALHEAD ENJOYER‼️💢☢️
 •‼️⛓️𓊈𝐂𝐄𝐑𝐓𝐈𝐅𝐈𝐄𝐃!!1 𝐏𝐇𝐈𝐒𝐍𝐎𝐌 𝐖𝐀𝐓𝐂𝐇𝐄𝐑𓊉⛓️
 
