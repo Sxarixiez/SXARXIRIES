@@ -1,8 +1,6 @@
-<img width="498" height="395" alt="gif" src="https://github.com/user-attachments/assets/05bb4b26-0aeb-4bfe-b5c4-a1762fe02f79" />
+<img width="736" height="737" alt="image" src="https://github.com/user-attachments/assets/2ab04620-5ca0-49bf-899f-1dbc4c529a9b" />
 
-<img width="736" height="788" alt="image" src="https://github.com/user-attachments/assets/63b2e82a-23bd-4739-a954-06eae8902a3c" />
-
-"the destroyah de universe."
+"scar. destroyah de universe."
 
 scar/riot/cozmo
 
