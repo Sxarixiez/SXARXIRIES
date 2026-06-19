@@ -1,6 +1,6 @@
 <img width="1200" height="1200" alt="image" src="https://github.com/user-attachments/assets/6648385b-7fa0-4818-9fcb-c2f69df3d1ae" />
 
-Im feelin a lil female sometimes idk 
+𝕴𝖒 𝖋𝖊𝖊𝖑𝖎𝖓 𝖆 𝖑𝖎𝖑 𝖋𝖊𝖒𝖆𝖑𝖊 𝖘𝖔𝖒𝖊𝖙𝖎𝖒𝖊𝖘 𝖎𝖉𝖐
 
 <img width="736" height="737" alt="image" src="https://github.com/user-attachments/assets/d4696070-0de1-4c0b-b74a-fe490ec6617b" />
 
