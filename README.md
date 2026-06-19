@@ -4,7 +4,7 @@
 
 <img width="736" height="737" alt="image" src="https://github.com/user-attachments/assets/d4696070-0de1-4c0b-b74a-fe490ec6617b" />
 
-丂乂卂尺乂丨尺丨乇 !!1 UR LOCAL PUNK/METAL ENJOYER
+丂乂卂尺乂丨尺丨乇 !!1 ᵁᴿ ᴸᴼᶜᴬᴸ ᴾᵁᴺᴷ/ᴹᴱᵀᴬᴸ ᴱᴺᴶᴼʸᴱᴿ
 
 YOUR CERTIFIED PUNK MUSIC AND METALHEAD ENJOYER‼️💢☢️
 •‼️⛓️𓊈𝐂𝐄𝐑𝐓𝐈𝐅𝐈𝐄𝐃!!1 𝐏𝐇𝐈𝐒𝐍𝐎𝐌 𝐖𝐀𝐓𝐂𝐇𝐄𝐑𓊉⛓️
