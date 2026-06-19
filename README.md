@@ -7,7 +7,7 @@ scar/riot/cozmo
 YOUR CERTIFIED PUNK MUSIC AND METALHEAD ENJOYER‼️💢☢️
 •‼️⛓️𓊈𝐂𝐄𝐑𝐓𝐈𝐅𝐈𝐄𝐃!!1 𝐏𝐇𝐈𝐒𝐍𝐎𝐌 𝐖𝐀𝐓𝐂𝐇𝐄𝐑𓊉⛓️
 
-Hi I'm icry, miles, edge, miller, cosmo, arachna I have so many names call me whatever you want Or Burak bcz I'm from turkiye multifandomer + autistic + has adhd + he/him/all/she/her/they/them/xe/xem/xyr + aroace (aromantic asexual)
+Hi I'm icry, miles, edge, miller, cosmo, arachna I have so many names call me whatever you want or Burak bcz I'm from turkiye multifandomer + autistic + has adhd + he/him/all/she/her/they/them/xe/xem/xyr + aroace (aromantic asexual)
 
 Likes; gaming, listening music, speaking with da gang, my own tazmanian devil plush, cats, metal/heavy metal/black metal/gore metal, punk, rock, hyperpop, nightcore, indie game osts, snythwave, frutiger aero, skating, basketball, playing guitar(I'll have it soon)
 
